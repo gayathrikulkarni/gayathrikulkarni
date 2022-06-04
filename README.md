@@ -1,4 +1,4 @@
-### Hi there 👋, Gayathri Kulkarni
+### Hi there 👋,I'm Gayathri Kulkarni
 #### Engineer , Dancer
 ![Engineer , Dancer](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRxvYXRMT3zfWIi3xbakRGufnUCGf7PWVFVMw&usqp=CAU)
 
